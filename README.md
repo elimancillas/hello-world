@@ -1,2 +1,2 @@
-Mancillas es...
+
 Soy una persona apasionada por aprender y descubrir cosas nuevas. Me considero curioso, creativo y siempre busco mejorar en todo lo que hago. Disfruto los momentos tranquilos tanto como las aventuras inesperadas. Valoro la honestidad, las buenas conversaciones y las conexiones auténticas con las personas que me rodean. Tengo mis propios retos y logros, pero me gusta ver cada experiencia como una oportunidad de crecimiento.
